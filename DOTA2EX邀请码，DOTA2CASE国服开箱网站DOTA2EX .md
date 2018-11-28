@@ -1,0 +1,5 @@
+# DOTA2EX邀请码，DOTA2CASE国服开箱网站DOTA2EX 
+
+DOTA2EX是DOTA2CASE专门的国服版本
+
+
